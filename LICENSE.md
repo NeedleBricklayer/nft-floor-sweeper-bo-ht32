@@ -1,4 +1,4 @@
-# 
+# elite NFT Trading Bot for nft floor sweeper bot | NFT-sniping & wash-trading-detection offers the most advanced nft floor sweeper bot, with NFT-sniping and wash-trading-detection.
 
 
 
